@@ -1,0 +1,2 @@
+Waste-Management System
+The concept of environmental sustainability is crucial for combating climate change and ensuring that the natural beauty and resources of the planet are preserved for future generations.<br> It requires cooperation and commitment from individuals, communities, businesses, and governments worldwide to implement sustainable practices and make decisions that balance economic growth with environmental stewardship.
